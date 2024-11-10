@@ -1,4 +1,4 @@
-## [Κάντε κλικ για να παίξετε το Sweet Bonanza στον καλύτερο ιστότοπο κουλοχέρηδων](https://verdepromo.com/l/67306c096cc03da6ab08a70f)
+## [Κάντε κλικ για να παίξετε το Sweet Bonanza στον καλύτερο ιστότοπο κουλοχέρηδων](https://cutt.ly/SeHYCYw0)
 <br>
 <br>
 <br>
